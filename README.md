@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ethanthomas727
+- 👋🏻 Hi, I’m @ethanthomas727
 - 👀 I’m interested in Computer Science, Music, and Video Games
 - 🌱 I’m currently studying Computer Science at Dartmouth College
 - 📫 How to reach me: ethanjthomas727@gmail.com
